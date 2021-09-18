@@ -10,3 +10,4 @@ Streamitter.     https://radio.streamitter.com/search/Radioalfa%20tropical
 World.       https://forwardmystream.com/page/stations?q=Radioalfa+tropical&genre=all&country=all
 Tunerr.     http://tunerr.co/search-results 
 Weebly.    https://alfaradios.weebly.com/
+Radioalfa tropical http://radioalfatropicalmiami.blogspot.com
